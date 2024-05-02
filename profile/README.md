@@ -1,4 +1,4 @@
-# Doing Scary Things
+# 👻 Doing Scary Things 👻
 
 Graziele Fagundes [GitHub Page](https://github.com/graziele-fagundes)
 
